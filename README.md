@@ -1,1 +1,1 @@
-https://tiny-moron.github.io/calculator/
+https://ekaterina-mukhametova.github.io/calculator/
